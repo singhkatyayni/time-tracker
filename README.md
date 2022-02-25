@@ -5,3 +5,4 @@ Time tracker
 
 Good Night Students!!!
 Let's learn.
+Winners never quit
